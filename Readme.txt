@@ -1,3 +1,6 @@
+THIS IS FOR SCHOOL PURPOSES ONLY AND A PROJECT
+
+
 Thanks for downloading this template!
 
 Template Name: AgriCulture
